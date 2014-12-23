@@ -4,13 +4,13 @@ title:  "#1: Birth, and move to Shigar. Plus, Ghulam Haider"
 date:   2014-12-23
 ---
 
-The first thing you must understand is that there wasn't any girl in the house. Some of them were born but they were stillborn. When my older brother was born my grandmother got really upset.
+The first thing you must understand is that there wasn't any girl in the house. Some of them were born but they were stillborn. When my older brother was born my grandmother got really upset. Some thing had to be done.
 
 To get to Jammu took 2 days and 2 nights (Banihal pass didn't exist). Raghunath mandir was in Jammu. So my Daadi made the trip to tie a prayer thread in order to pray for a girl. And I was then born.
 
 I was given a lot of love by her. 
 
-At the age of 1, I contracted some disease of the eye. I don't know what it was. The doctors said no light could fall on my eyes. But my grandmother made my mother sit inside a dark room for 3 months and made her take care of me.
+At the age of 1, I contracted some disease of the eye. I don't know what it was. The doctors said no light could fall on my eyes. So, my grandmother made my mother sit inside a dark room for 3 months and made her take care of me.
 
 At the age of 3 years, I went to Sopore (a small city south of Srinagar) to visit my mother's family. My mother had kept a pot of boiling milk on the stove, and went to look after my brother. I went to take the pot, and drank the milk. I burned my throat and tongue and oesophagus and my chest. Some doctors said I wouldn't survive, because I couldn't eat anything. Dr Omkar Nath said that a dripper filled with milk had to be used to drop milk, one drop by one drop, into my throat. For 1 month. Even after that I couldn't eat solid food for 6 months after that. I lisped for the rest of my childhood because of my burned tongue. I still do sometimes.
 
