@@ -3,7 +3,7 @@ layout: page
 title: About
 permalink: /about/
 ---
-My name is Shivan Kaul Sahib (Hi!). I'm a student of software engineering at McGill University in Montreal. But this blog is not about me.  
+My name is Shivan Kaul Sahib (Hi!). I'm a student of software engineering at McGill University in Montreal. But this blog is not about [me](http://shivankaulsahib.me).  
 
 ...  
 
