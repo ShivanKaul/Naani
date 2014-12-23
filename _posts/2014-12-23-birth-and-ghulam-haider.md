@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Birth, and move to Shigar. Plus, Ghulam Haider"
+title:  "#1: Birth, and move to Shigar. Plus, Ghulam Haider"
 date:   2014-12-23
 ---
 
@@ -18,7 +18,9 @@ I lived for the next 5 years being loved by my Daadi. And then she contracted do
 
 My father used to work as a doctor at the Central Jail. There used to be two parties, Sher (Lion Party, led by Sheikh Abdullah) and Bakr (Lamb) parties. Sher Party was in power, and they used to send politicians from the Bakr party to Central Jail under charges of sedition. My father was sympathetic to the Bakr Party, and ensured that the prisoners got proper food. Some people didn't like that, and a complaint went to Sher-e-Kashmir (Sheikh Abdullah). He soon got transferred to Shigar, which was on the India-Pakistan border (now it is a part of Pakistan). It was a 15 day journey on donkey-back. My mother, my sister, my younger brother and I went along; my oldest brother stayed behind for his studies. 
   
+  
 
+  
 
 #### GHULAM HAIDER
 
